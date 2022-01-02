@@ -59,12 +59,12 @@ A video link of both software and hardware has been shared for your understandin
 
 5. Contribution
 
+N PRANITHA
+
  SAI SAHITHI KODAVATI
  
  Y PRIYA VERMA
  
  K HARSHITHA
- 
- N PRANITHA
  
  G FARAZ
